@@ -1,0 +1,1 @@
+# simulazione_di_Potenza-_3_versioni
